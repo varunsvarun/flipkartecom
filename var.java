@@ -1,0 +1,4 @@
+bjx
+nxjnj
+nnxmn
+nxkj
